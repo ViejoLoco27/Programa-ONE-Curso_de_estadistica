@@ -1,1 +1,1 @@
-# Programa-ONE-Curso_de_estad-stica
+# Programa-ONE-Curso_de_estadistica
